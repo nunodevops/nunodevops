@@ -2,7 +2,7 @@
 - 👀 I’m interested in Math, Physics and Programming Languages 
 - 🌱 I’m currently learning everything I don't know yet.
 - 💞️ I’m looking to collaborate on any interesting project, namely non-profit.
-- 📫 Reach me here -> <-
+- 📫 Reach me here ->nunoines.pt<-
 
 
 <!---
